@@ -5,4 +5,4 @@
 
 ![mi foto](mifoto.jpg)
 
-Seguí los pasos del doc [acá](https://docs.google.com/document/d/e/2PACX-1vQkogtG88cmwEIXEuff291urSyrZUYHikLIoRTspUodvIg5OoaUJTi8n0vqPJ3XUSN65sqJALTBizeB/pub). (hecho)
+Soy Lourdes Florencia Larocca pero (casi) todos me dicen Florcha. Me gusta leer, tocar la guitarra, cantar, escribir y armar listas de todo. Las frases que más escuché en mi vida son "Qué alta que sos" porque mido 1,80cm desde los 14 años y "Qué rápido que hablas". Soy alérgica a los gatos y a matemática discreta.
